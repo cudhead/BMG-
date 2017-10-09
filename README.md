@@ -1,1 +1,0 @@
-# Hesaplama-ve-Bilgisayar-Traihi
